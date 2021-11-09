@@ -18,6 +18,5 @@ Here are some ideas to get you started:
 
 
 
-![papich-папич](https://user-images.githubusercontent.com/47697674/140923947-312f894c-d0ce-4440-88e2-4a72e510f713.gif)
-
+![papich-папич](https://user-images.githubusercontent.com/47697674/140924481-b33c345f-71f0-40cd-bae8-779ae251eb44.gif)
 
